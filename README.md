@@ -1,2 +1,2 @@
 # CRICK_STAT-TEAM
-https://drive.google.com/file/d/1DE4Z4phRTjXX9tGXf2tpDAp1orZQkP-2/view?usp=drivesdk
+https://drive.google.com/drive/folders/1xtfKSdn5MVJFdUvtiDCQUZi6o1EP6sZT
